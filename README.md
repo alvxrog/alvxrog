@@ -1,3 +1,1 @@
-Ing. Informática @ UMU
-
-"Winning is one thing, but out of losing I always learned more"
+Winning is one thing, but out of losing I always learnt more
